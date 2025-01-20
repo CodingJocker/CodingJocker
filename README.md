@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning basics and all other stuffs 
 - 💞️ I’m looking to collaborate on apple
 - 📫 How to reach me my mail
-- 😄 Pronouns: coding expert
+- 😄 Pronouns: he or him
 - ⚡ Fun fact: nothing is fun
 
 <!---
